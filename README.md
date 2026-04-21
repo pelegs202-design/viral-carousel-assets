@@ -1,0 +1,1 @@
+# Viral Carousel Assets
